@@ -112,7 +112,7 @@ Open it in your browser to use the app.
 
 ## 👨‍💻 Author
 
-**Annas Wains**
+**♡ Annas Wains ♡**
 
 ---
 
